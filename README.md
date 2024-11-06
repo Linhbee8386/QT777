@@ -22,6 +22,8 @@ Kesimpulan
 
 QT777 APK adalah pilihan yang tepat bagi para penggemar slot online yang mencari pengalaman bermain yang seru, grafis yang memukau, dan peluang menang besar. Dengan fitur lengkap dan desain yang ramah pengguna, QT777 APK layak dicoba.
 
+## Certifications
+[View Google Certification]( googlef01869a06389ea9a.html)
 
 
 
